@@ -1,0 +1,1 @@
+Pozdrav svima, dao sam sve od sebe kako bih napravio ovo. Ovo je moj remake Zmice, nadam se da ce vam se svideti! :)
